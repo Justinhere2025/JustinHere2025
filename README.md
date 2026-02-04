@@ -4,7 +4,7 @@ Planes me likey
 
 **bye** **bye**
 
-![Plane](aircraft-jet-landing-cloud-46148.jpeg)
+![Plane](aircraft-jet-landing-cloud-46148.jpeg) width="50%"
 
 
 
