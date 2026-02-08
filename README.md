@@ -2,7 +2,7 @@
 ### Good Morning
 Planes me likey
 
-**bye** **bye**
+**Bye** **Bye**
 
 Airbus A320 ⬇️
 
